@@ -4,4 +4,5 @@
 - 💞️ I’m looking to collaborate on this endeavor of mine
 - 📫 How to reach me? Just discord me @wolf_g88
   More to come down the road...
-Finally getting this update and getting projects added todays date 8/29/25
+  
+Finally getting this updated and getting projects added todays date 8/29/25
